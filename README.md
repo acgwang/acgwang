@@ -1,16 +1,13 @@
-## Hi there 👋
+## 黄油网址｜牛头人游戏随便下｜ACG爱好者快收藏
 
-<!--
-**acgwang/acgwang** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+👋欢迎来到 黄油网址 这里实时分享牛头人游戏随便下｜ACG爱好者快收藏, 如果喜欢还记得去DLsite购买正版哦. 👋 主要解决acg游戏资源难找的问题，为喜爱玩小黄油网址的朋友提供一种获取的途径。
 
-Here are some ideas to get you started:
+✨怎么获取acg资源✨
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+网站资源库在线下载地址: https://www.ntrku.com
+
+🌱其他声明🌱 所有游戏资源收集于互联网，大家有能力请支持正版
+
+游戏爱好者的乐园！ 不仅仅是一个宝藏黄油网址｜牛头人游戏随便下｜ACG爱好者快收藏，更是一个无数游戏发烧友的交流社区。无论你是寻找宝藏黄油网址｜牛头人游戏随便下｜ACG爱好者快收藏，还是寻找一群志同道合的朋友，我们都能满足你的需求！
+
+无论你是新手还是资深玩家，都能在这里找到心仪之作，尽情享受黄游的乐趣！ 萌玩游戏. 最新最热的宝藏黄油网址｜牛头人游戏随便下｜ACG爱好者快收藏
